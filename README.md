@@ -1,3 +1,3 @@
-لاتغير حقوق تعرف نصبه ورفعه استضافه ونجب
+ها بلبوص
 
-https://t.me/H_P_K/
+https://t.me/Mohammedthon
